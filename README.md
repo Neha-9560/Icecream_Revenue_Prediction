@@ -59,7 +59,7 @@ Higher temperature generally means more ice cream sales — and we use machine l
 ## Connect with Me
 
 - **GitHub**: [@Neha-9560](https://github.com/Neha-9560)
-- **LinkedIn**: *(Add your profile URL here)*
+- **LinkedIn**: *(https://www.linkedin.com/in/neha-singh-063a16334)*
 
 ---
 
